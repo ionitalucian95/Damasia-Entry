@@ -1,2 +1,3 @@
 # Damasia-Entry
-Intrarea in necunoscut
+Hi humans!
+I'm army man,and i'm new on this gameplace!
